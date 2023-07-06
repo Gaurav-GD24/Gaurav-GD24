@@ -10,7 +10,7 @@ I am a frontend technology enthusiast who believes in the power of mindfulness. 
 
 After graduation, I went through more phases than a cat chasing its own tail. I made mistakes, messed up big time, and stumbled upon life's banana peels. But guess what? I learned more from those mishaps than any lecture or textbook could teach me. 💥 Finally, I found my true calling, frontend development! It's like discovering the perfect pair of shoes, but for my coding journey. Every day, I'm learning new things and working towards becoming a Good frontend developer.
 
-##Let's Connect!
+## Let's Connect!
 I'm always up for a chat, collaboration. Feel free to reach out to me through the following channels:
 
 Email: <dawaregaurav1@gmail.com>
