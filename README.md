@@ -14,7 +14,7 @@ After graduation, I went through more phases than a cat chasing its own tail. I 
 I'm always up for a chat, collaboration. Feel free to reach out to me through the following channels:
 
 Email: <dawaregaurav1@gmail.com>
-LinkedIn: www.linkedin.com/in/gaurav-daware-12a203108
+LinkedIn: www.linkedin.com/in/gaurav-daware
 Personal Website: Working On...
 
 ***
